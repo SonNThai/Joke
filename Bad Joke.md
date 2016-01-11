@@ -1,6 +1,6 @@
 # Joke
 
-What is red and smells like paint?
+What is red and smells like orange paint?
 
 
 
